@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil da Eloyse Santos 😁
+## Bem-vindo(a) ao perfil de Eloyse Santos 😁
 
  <div>
    <a href="https://github.com/Eloysee">
